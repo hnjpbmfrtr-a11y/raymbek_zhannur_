@@ -1,1 +1,0 @@
-# raymbek_zhannur_
